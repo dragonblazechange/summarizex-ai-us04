@@ -1,4 +1,4 @@
-# 
+# Profissional SummarizeX instalador. Baixe e instale com modelos pré-configurados e modo offline — rápido, seguro e fácil de usar.
 
 
 
